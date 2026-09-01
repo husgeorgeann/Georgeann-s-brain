@@ -22,4 +22,4 @@ Georgeann Hoover has spent 17 years selling real estate across Lake Havasu City,
 
 ## Accounts
 
-GitHub username: (not yet collected)
+GitHub username: husgeorgeann
