@@ -14,9 +14,14 @@
 **Tracey T**, 5 stars
 "Very happy customer! Georgeann is awesome and I highly recommend her. I have a beautiful house and some lovely pieces of furniture thanks to Georgeann!"
 
+**Stephanie Beeby**, 5 stars
+"Georgeann has handled multiple Buyer/Seller transactions for us over the past several years demonstrating her market skills and wide industry knowledge. She was always available to us and knows the contracts! Her online market presence is top notch and she is fun to work with. I recommend you Buy/Sell your next property with her. Coming from a Licensed Realtor in CA says a lot too."
+
+This one carries extra weight: it's a repeat client across multiple transactions, and she's a licensed Realtor in California herself, meaning this is a professional's endorsement, not just a happy buyer's.
+
 ## What these prove
 
-Across four separate clients, the same themes repeat without being prompted: she listens, she follows through, she reads exactly what a client wants, and she makes a stressful process feel smooth. That consistency across independent reviews is its own proof.
+Across five separate clients, the same themes repeat without being prompted: she listens, she follows through, she reads exactly what a client wants, and she makes a stressful process feel smooth. That consistency across independent reviews is its own proof, and having a licensed CA Realtor vouch for her from client-side experience is proof that speaks to other agents too.
 
 ## The numbers
 
