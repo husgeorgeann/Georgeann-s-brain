@@ -27,9 +27,15 @@ This one shows the referral engine in action: one relationship from 6 years ago 
 **Lisa Garrity**, 5 stars
 "Georgeann Hoover is your go to professional if you are looking for someone in Havasu Real Estate that is an amazing hard worker. She is well connected in the community and knows how to get results for her clients."
 
+**Donna Manning**, 5 stars, sold a single family home in 2019, Lake Havasu City AZ
+"Georgeann did an excellent job of marketing our home. I became very ill and needed a quick sale. It sold in a couple months and got us out of town before the summer heat descended on Lake Havasu. She was very professional and knowledgeable in all her dealings and we would highly recommend her."
+Rated 5 stars on local knowledge, process expertise, responsiveness, and negotiation skills.
+
+This one is a real urgency story: an illness forced a fast sale, and Georgeann got it sold and closed before the summer heat, on top of the health pressure the client was already under.
+
 ## What these prove
 
-Across seven separate clients, the same themes repeat without being prompted: she listens, she follows through, she reads exactly what a client wants, and she makes a stressful process feel smooth. That consistency across independent reviews is its own proof, having a licensed CA Realtor vouch for her from client-side experience is proof that speaks to other agents too, and the Pearson review shows real referral chains, not just one-off happy clients.
+Across eight separate clients, the same themes repeat without being prompted: she listens, she follows through, she reads exactly what a client wants, and she makes a stressful process feel smooth. That consistency across independent reviews is its own proof, having a licensed CA Realtor vouch for her from client-side experience is proof that speaks to other agents too, the Pearson review shows real referral chains rather than one-off happy clients, and the Manning review shows she delivers even when the timeline is forced by something outside anyone's control.
 
 ## The numbers
 
