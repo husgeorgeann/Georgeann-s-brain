@@ -10,15 +10,15 @@ She works across a stretch of towns along the Colorado River area: Lake Havasu C
 
 ## Track record
 
-She has closed 137 sales and listings. She is consistently ranked in the top percentage of agents at Coldwell Banker, year after year.
+She has closed 137 home sales and listings in Arizona over the last 11 years. She is consistently ranked in the top percentage of agents at Coldwell Banker, year after year.
 
 ## Designations
 
-She does not hold a formal designation like CNE, CRS, or ABR. That is fine. Her proof is her track record: 17 years, 137 deals, and a consistent top-percentage ranking at a national brokerage. That speaks louder than a certification.
+She does not hold a formal designation like CNE, CRS, or ABR. That is fine. Her proof is her track record: 17 years in real estate overall, 137 Arizona home transactions in the last 11 of those years, and a consistent top-percentage ranking at a national brokerage. That speaks louder than a certification.
 
 ## Positioning line
 
-Georgeann Hoover has spent 17 years selling real estate across Lake Havasu City, Parker, Mohave Valley, Bullhead City, Needles, and Kingman. She has closed 137 sales and listings and consistently ranks in the top percentage of agents at Coldwell Banker.
+Georgeann Hoover has spent 17 years in real estate, the last 11 of them selling homes across Lake Havasu City, Parker, Mohave Valley, Bullhead City, Needles, and Kingman. She has closed 137 sales and listings in Arizona and consistently ranks in the top percentage of agents at Coldwell Banker.
 
 ## Accounts
 

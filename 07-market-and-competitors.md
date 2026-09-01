@@ -18,6 +18,6 @@ Georgeann does not talk about the market in generic terms like "hot" or "heating
 
 Her real competition is not individual agents. It is a couple of large teams working the same area. What they do well: they can tout their numbers, meaning team-wide production and volume that outsizes any one agent's individual stats.
 
-**Where Georgeann is strong against that:** she is not a name attached to a big team's collective numbers, she is one person with 137 personal transactions and 17 years of individual, ranked performance. A client working with her gets her directly, not whichever agent on a team happens to be available.
+**Where Georgeann is strong against that:** she is not a name attached to a big team's collective numbers, she is one person with 137 personal Arizona transactions over the last 11 years and 17 years of individual, ranked performance overall. A client working with her gets her directly, not whichever agent on a team happens to be available.
 
 **Never state anything else about these teams.** Georgeann did not name them and did not describe anything beyond their ability to tout numbers. Nothing more should ever be claimed about them here.

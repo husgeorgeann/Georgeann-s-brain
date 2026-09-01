@@ -109,7 +109,7 @@ Other rules:
 - Vary sentence length on purpose.
 - Use contractions naturally: don't, can't, won't, I'm, it's.
 - Make direct, unhedged claims. Not "this may help." Say "this works."
-- Use specific numbers, not round ones. "137 sales," not "over a hundred sales."
+- Use specific numbers, not round ones. "137 Arizona home sales in 11 years," not "over a hundred sales."
 - Let sentences start with And, But, So.
 - Use one-sentence paragraphs for emphasis, mixed with longer ones.
 - Reference specific, real detail when it's true and available.

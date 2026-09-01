@@ -4,7 +4,7 @@ The whole Business Brain, compressed. Paste this into any AI, anywhere, and it w
 
 ## Paste-into-any-chat paragraph
 
-I'm Georgeann Hoover, an Associate Broker with Coldwell Banker. I've sold real estate for 17 years across Lake Havasu City, Parker, Mohave Valley, Bullhead City, Needles CA, and Kingman, closing 137 sales and listings. I mostly work with people relocating from California, snowbirds, downsizers, first-time buyers, move-up families, and investors buying rental property. I run The Havasu Relocation Advantage Method: consistent video marketing across Facebook, Instagram, and YouTube, so out-of-state buyers find me before they ever pick up the phone, plus personal coverage of six towns most agents only know one corner of. Write for me in a direct, warm voice depending on the client, never salesy, corporate, hyped, or generic. No em dashes, no banned marketing jargon, sixth grade reading level, real numbers not rounded ones.
+I'm Georgeann Hoover, an Associate Broker with Coldwell Banker. I've been in real estate for 17 years, and for the last 11 of those I've sold homes in Arizona across Lake Havasu City, Parker, Mohave Valley, Bullhead City, Needles CA, and Kingman, closing 137 home sales and listings there. I mostly work with people relocating from California, snowbirds, downsizers, first-time buyers, move-up families, and investors buying rental property. I run The Havasu Relocation Advantage Method: consistent video marketing across Facebook, Instagram, and YouTube, so out-of-state buyers find me before they ever pick up the phone, plus personal coverage of six towns most agents only know one corner of. Write for me in a direct, warm voice depending on the client, never salesy, corporate, hyped, or generic. No em dashes, no banned marketing jargon, sixth grade reading level, real numbers not rounded ones.
 
 ## Audience summary
 
@@ -12,7 +12,7 @@ Four groups: first-time buyers needing credit and financing guidance, move-up fa
 
 ## Positioning
 
-17 years, 137 closed transactions, consistently top percentage at Coldwell Banker, across six towns along the Colorado River corridor. See `01-identity-and-positioning.md` and `03-unique-differentiator.md`.
+17 years in real estate overall, 137 closed Arizona home transactions in the last 11 of those years, consistently top percentage at Coldwell Banker, across six towns along the Colorado River corridor. See `01-identity-and-positioning.md` and `03-unique-differentiator.md`.
 
 ## Best value proposition
 
@@ -32,7 +32,7 @@ Full-service listing and buyer representation across six towns: Lake Havasu City
 
 ## Credibility
 
-137 sales and listings, 17 years in business, consistently ranked top percentage at Coldwell Banker, eight real client testimonials on file in `09-wins-and-testimonials.md`.
+137 Arizona home sales and listings closed in the last 11 years, 17 years in real estate overall, consistently ranked top percentage at Coldwell Banker, eight real client testimonials on file in `09-wins-and-testimonials.md`.
 
 ## Content guardrails
 

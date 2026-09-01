@@ -10,7 +10,7 @@ Georgeann's own first description of her marketing, "Facebook marketing, Instagr
 
 **Version A, clear and direct:** Georgeann Hoover has sold real estate across Lake Havasu City, Parker, Mohave Valley, Bullhead City, Needles, and Kingman for 17 years. She runs consistent video marketing across Facebook, Instagram, and YouTube so buyers moving from out of state find her before they ever call an agent.
 
-**Version B, premium and authoritative:** With 137 closed transactions and 17 years ranked in the top percentage at Coldwell Banker, Georgeann Hoover has built her business on covering more ground and showing more of it on video than any other agent in the river corridor.
+**Version B, premium and authoritative:** With 137 closed Arizona transactions in the last 11 years, and 17 years ranked in the top percentage at Coldwell Banker, Georgeann Hoover has built her business on covering more ground and showing more of it on video than any other agent in the river corridor.
 
 **Version C, simple and conversational:** Georgeann's been selling homes along the river for 17 years, in six towns, not just one. If you're moving here from California or looking for a winter home, chances are you've already seen her on video before you ever call her.
 
@@ -72,7 +72,7 @@ I help people relocating from California and snowbirds looking for a winter home
 
 **Listing pitch:** "Your home doesn't just get listed. It gets walked through on video and pushed across Facebook, Instagram, and YouTube to buyers who are already watching this area, including the ones moving in from California who haven't found their town yet."
 
-**Why choose me, for sellers:** "I've closed 137 transactions across six towns in 17 years. I know which buyers are actually looking and where, and I put your home in front of them before they ever search."
+**Why choose me, for sellers:** "I've closed 137 transactions across six towns in Arizona over the last 11 years. I know which buyers are actually looking and where, and I put your home in front of them before they ever search."
 
 **Buyer consultation pitch:** "I work six towns along the river, not one. Before we look at a single house, I want to know your situation, first home, moving up, downsizing, or investing, so I put you in the right town instead of just the one I happen to know."
 

@@ -39,7 +39,7 @@ Across eight separate clients, the same themes repeat without being prompted: sh
 
 ## The numbers
 
-137 sales and listings closed. 17 years in the business. Consistently ranked in the top percentage of agents at Coldwell Banker.
+137 home sales and listings closed in Arizona over the last 11 years. 17 years in the business overall. Consistently ranked in the top percentage of agents at Coldwell Banker.
 
 ## A note on permission
 

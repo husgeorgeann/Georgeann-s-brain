@@ -24,7 +24,7 @@ Post hooks:
 - "Most agents show you the one town they know. I'll tell you which of six actually fits."
 - "Lake Havasu, Parker, Bullhead City, Kingman, Mohave Valley, or Needles. Here's how to pick."
 - "A client asked for Havasu. I put them in Parker instead. Here's why."
-- "137 deals across six towns taught me this."
+- "137 Arizona deals across six towns in 11 years taught me this."
 - "Don't let one agent's one town decide your move."
 CTAs: "Tell me your must-haves and I'll tell you which town fits." "Not sure which town is right? Ask me." "Compare all six with me before you decide."
 
@@ -95,7 +95,7 @@ CTAs: "Want an agent who actually feels every step? Let's talk." "Ask any of my 
    Proof idea: a rental demand breakdown by town.
 
 8. "Why not just work with a big team, they have more numbers?"
-   Reframe: 137 personal transactions and 17 years of her own ranked performance, not borrowed team numbers.
+   Reframe: 137 personal Arizona transactions in 11 years and 17 years of her own ranked performance, not borrowed team numbers.
    Proof idea: her own track record, stated plainly.
 
 9. "I don't know anyone here yet."
