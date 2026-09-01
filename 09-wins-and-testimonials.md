@@ -19,9 +19,14 @@
 
 This one carries extra weight: it's a repeat client across multiple transactions, and she's a licensed Realtor in California herself, meaning this is a professional's endorsement, not just a happy buyer's.
 
+**Lucette Pearson**, 5 stars
+"We met Georgeann 6 years ago. She found us a fabulous home, so perfect for us. Since then, she has found 3 more great homes for our friends from Washington. We've encouraged all our friends to contact her with any questions or referrals. I can't say enough about Georgann. She is smart, thorough, friendly and she really knows her Real Estate. A good person/agent to have on your side. We strongly recommend her."
+
+This one shows the referral engine in action: one relationship from 6 years ago has since produced 3 more closed homes for friends from Washington state, all word of mouth.
+
 ## What these prove
 
-Across five separate clients, the same themes repeat without being prompted: she listens, she follows through, she reads exactly what a client wants, and she makes a stressful process feel smooth. That consistency across independent reviews is its own proof, and having a licensed CA Realtor vouch for her from client-side experience is proof that speaks to other agents too.
+Across six separate clients, the same themes repeat without being prompted: she listens, she follows through, she reads exactly what a client wants, and she makes a stressful process feel smooth. That consistency across independent reviews is its own proof, having a licensed CA Realtor vouch for her from client-side experience is proof that speaks to other agents too, and the Pearson review shows real referral chains, not just one-off happy clients.
 
 ## The numbers
 
