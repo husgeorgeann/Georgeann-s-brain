@@ -11,9 +11,12 @@
 **Steve Clement**, 5 stars
 "Working with Georgeann was an absolute pleasure! Her knowledge and insights into the real estate market gave us confidence in our purchase. Georgeann went above and beyond, making the real estate process smooth and stress-free. If you're looking for a phenomenal agent who understands the local market, we highly recommend her!"
 
+**Tracey T**, 5 stars
+"Very happy customer! Georgeann is awesome and I highly recommend her. I have a beautiful house and some lovely pieces of furniture thanks to Georgeann!"
+
 ## What these prove
 
-Across three separate clients, the same themes repeat without being prompted: she listens, she follows through, she reads exactly what a client wants, and she makes a stressful process feel smooth. That consistency across independent reviews is its own proof.
+Across four separate clients, the same themes repeat without being prompted: she listens, she follows through, she reads exactly what a client wants, and she makes a stressful process feel smooth. That consistency across independent reviews is its own proof.
 
 ## The numbers
 
