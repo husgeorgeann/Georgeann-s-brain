@@ -24,9 +24,12 @@ This one carries extra weight: it's a repeat client across multiple transactions
 
 This one shows the referral engine in action: one relationship from 6 years ago has since produced 3 more closed homes for friends from Washington state, all word of mouth.
 
+**Lisa Garrity**, 5 stars
+"Georgeann Hoover is your go to professional if you are looking for someone in Havasu Real Estate that is an amazing hard worker. She is well connected in the community and knows how to get results for her clients."
+
 ## What these prove
 
-Across six separate clients, the same themes repeat without being prompted: she listens, she follows through, she reads exactly what a client wants, and she makes a stressful process feel smooth. That consistency across independent reviews is its own proof, having a licensed CA Realtor vouch for her from client-side experience is proof that speaks to other agents too, and the Pearson review shows real referral chains, not just one-off happy clients.
+Across seven separate clients, the same themes repeat without being prompted: she listens, she follows through, she reads exactly what a client wants, and she makes a stressful process feel smooth. That consistency across independent reviews is its own proof, having a licensed CA Realtor vouch for her from client-side experience is proof that speaks to other agents too, and the Pearson review shows real referral chains, not just one-off happy clients.
 
 ## The numbers
 
